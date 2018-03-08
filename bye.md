@@ -1,0 +1,20 @@
+- Hi Good morning.
+- Si jonas ba to o si Rai?
+- Jonas. bakit?
+- Wala lang. Baka kasi kinuha ni Rai yung simcard mo e. Good morning din. 
+- Hindi. hindi na siguro ako magpapalit ng sim. 
+- kala ko tinext ka nya.
+- Kamusta paguusap niyo kahapon? Nope. Di niya ko tinext. Why? Binigay mo ba number ko?
+- galit talaga sya sakin. nung una ayaw nya ko kausapin e. pero hindi nmn n sya nakikipag break nung nagkita kami..
+- hindi ko binigay. akala ko lang gawa nung reply mo nung nagtext ako
+- Ano bang ginawa niyo kahapon? Saan kayo nagpunta? Nakapagusap ba kayo ng ayos?
+- may fun run kasi ung company nila. isinali nya ako. kaya maaga kami magkasama kahapon. kahit papano naman nakapag usap kami ng ayos. magkasama kami kahapon maghapon. pero alam ko hindi pa un okay sakin.
+- Ikinuwento mo kay tita yung nangyari?
+- hindi pa. hindi ko alam kung pano ko ikukuwento. baka hindi na lang siguro. 
+- Okay. Ano plano mo ngayon?
+- Balak ko bumawi kay Rai. nawalan talaga ako ng effort sa knya e. last chance ko na to kaya aayusin ko na. siguro hindi na ko laging magtetext o magchachat. pero gusto ko pa rin sanang maging okay tayo. ibig ko sabihin ung hindi tayo awkward.
+- Okay. Talagang mahal na mahal mo sya e nuh? And that’s good. Nangyari yung inaasahan kong mangyayari. Anyways, wag mo kong mamimiss please? Ipagdasal mo na lang na di tayo magkasalubong or magkita sa kung saan man kasi i don’t think kaya kitang pansinin lalo na kung kasama mo si Rai. Yun lang :) ingat palagi. Thank you ulit sa sandaling panahon na nakasama ulit kita. Masaya ako nun kahit pabigla bigla ka ng pagpapakita:) Thank you!
+- Ang lungkot naman. hay. okay. hindi naman lahat ng bagay makukuha ko. kaya sige. ingat ka din palagi. ako din masaya talaga nung nakasama kita. parang sa loob ng 9 years na magkakilala tayo, nito lang talaga tayo nagkasama ng ganun. bakit ba hindi matino ung pagiging magkaibigan natin. hay. Good bye na ba to? ayaw kong isiping ito n ung huli kong text sayo e.  Thank you din.
+- :)
+- Kung kayo, kayo talaga. Yung satin, walang kasiguraduhan pero malalaman. But one thing is for sure now, hindi pa ngayon yung time para sating dalawa :) Bye. 
+- Oo. un ung realidad. ayaw ko talaga mag goodbye pero sige, paalam muna, sa ngayon. ingat ka palagi ha. kumain ka lagi ng madami. wag ka masyado sa coffee float. mag exercise ka na din bago ka magkaron para hindi sumakit ng sobra ung puson mo. kaibigan pa rin kita kahit anong mangyari. kahit hindi mo ko pansinin pag makakasalubong kita. okay lang un. alam ko maraming nagmamahal sayo kaya kahit wala ako masaya ka pa din. bye meng. ang lamya ko. sorry. ingat. 
